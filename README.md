@@ -2,8 +2,7 @@
 - 👀 I’m interested in Blox Fruits On Roblox
 - 🌱 I’m currently learning How To Build 3D Models And Build Custom Model Cars
 - 💞️ I’m looking to collaborate on Any Game Or Roblox Projects
-- 📫 How to reach me, Email: bendyman86@hotmail.com Another Way To Reach Me Is On My Yotube!
-- 😄 Pronouns: I Don't Do The Stupid Pronoun BullShit  
+- 📫 How to reach me, Email: bendyman86@hotmail.com Another Way To Reach Me Is On My Yotube! 
 - ⚡ Fun fact: I'm A Youtuber And I Know How To Code
 
 <!---
